@@ -1,3 +1,6 @@
+# Bac-si-Nguyen-Chi-Thanh
+Phòng khám nội tổng hợp BSCK1 Nguyễn Chí Thành
+
 # PHÒNG KHÁM NỘI TỔNG HỢP BÁC SĨ NGUYỄN CHÍ THÀNH #
 
 ![1](https://user-images.githubusercontent.com/82578024/163080992-cc11dbd7-6327-4c98-bf09-4c562fa285ca.jpg)
