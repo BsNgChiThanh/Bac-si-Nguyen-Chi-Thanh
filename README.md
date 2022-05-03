@@ -7,7 +7,7 @@ Phòng khám nội tổng hợp BSCK1 Nguyễn Chí Thành
 
 ![2](https://user-images.githubusercontent.com/82578024/163081041-d0916469-6f18-40c4-8d59-cdac9311a239.jpg)
 
-## PHÒNG KHÁM TẠM ĐÓNG CỬA, DỰ KIẾN THÁNG 8/2022 MỞ CỬA KHÁM LẠI BÌNH THƯỜNG ##
+## PHÒNG KHÁM TẠM ĐÓNG CỬA, DỰ KIẾN NGÀY 09/7/2022 MỞ CỬA KHÁM LẠI BÌNH THƯỜNG ##
 
 [Chia sẽ địa điểm trên Google map](https://goo.gl/maps/ZAzVMCgx4S4X4A55A)
 
