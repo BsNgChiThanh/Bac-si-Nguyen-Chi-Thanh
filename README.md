@@ -13,7 +13,7 @@ Phòng khám nội tổng hợp BSCK1 Nguyễn Chí Thành
 
 - **[Phục lục III](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_tk/EaugVXyyKAxEs2Ufg_FUmNEBkz1V6aii5lm_G-OgJJZazQ?e=FaELVM)**
 - **[Phụ lục X](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_tk/EdxDPIAHg1ZLjhOYHk-sHhcBtnFm54ZCN886SlEcqp5pPQ?e=zMgWfp)**
-- **[Danh mục hộp thuốc chống sốc](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_tk/ESf3F00ASmhAhOzmCg06Ag4BIsZtHWIftXibtxHilErRuA?e=LuWYge)**
+- **[Danh mục hộp thuốc CẤP CỨU PHẢN VỆ](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_tk/ESf3F00ASmhAhOzmCg06Ag4BIsZtHWIftXibtxHilErRuA?e=LuWYge)**
 
 [Chia sẽ địa điểm trên Google map](https://goo.gl/maps/ZAzVMCgx4S4X4A55A)
 
