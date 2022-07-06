@@ -9,6 +9,12 @@ Phòng khám nội tổng hợp BSCK1 Nguyễn Chí Thành
 
 ## PHÒNG KHÁM TẠM ĐÓNG CỬA, DỰ KIẾN NGÀY 09/7/2022 MỞ CỬA KHÁM LẠI BÌNH THƯỜNG ##
 
+**[Thông tư 51/2017/TT-BYT](https://bsthanh-my.sharepoint.com/:b:/g/personal/laptopxiaomi_bsthanh_tk/ES855e0lyDtAqeJbx4FjUmABEGYwQOIcnhw0lsdldsnPjg?e=ukItqm)**
+
+- **[Phục lục III](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_tk/EaugVXyyKAxEs2Ufg_FUmNEBkz1V6aii5lm_G-OgJJZazQ?e=FaELVM)**
+- **[Phụ lục X](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_tk/EdxDPIAHg1ZLjhOYHk-sHhcBtnFm54ZCN886SlEcqp5pPQ?e=zMgWfp)**
+- **[Danh mục họp thuốc chống sốc](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_tk/ESf3F00ASmhAhOzmCg06Ag4BIsZtHWIftXibtxHilErRuA?e=LuWYge)**
+
 [Chia sẽ địa điểm trên Google map](https://goo.gl/maps/ZAzVMCgx4S4X4A55A)
 
 [Facebook](https://www.facebook.com/BsNguyenChiThanh)
