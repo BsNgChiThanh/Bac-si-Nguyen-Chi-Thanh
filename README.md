@@ -1,4 +1,4 @@
-# PHÒNG KHÁM NỘI TỔNG HỢP BÁC SĨ CHUYÊN KHOA CẤP 1: NGUYỄN CHÍ THÀNH #
+# PHÒNG KHÁM NỘI TỔNG HỢP BÁC SĨ CHUYÊN KHOA CẤP 1 NGUYỄN CHÍ THÀNH #
 
 # **[BẤM VÀO ĐÂY ĐỂ XEM TRANG WEB CÁ NHÂN](https://sites.google.com/camau.edu.vn/phongkhambacsithanh/trang-ch%E1%BB%A7)** #
 
